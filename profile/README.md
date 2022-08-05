@@ -1,4 +1,5 @@
-## Hi there 👋
+## Welcome to MLM Protec 👋
+# A world class team powered by an unmatched platform with an unbeatable guarantee to ensure that MLM Protec is your Last Stop for MLM Software!
 
 <!--
 
